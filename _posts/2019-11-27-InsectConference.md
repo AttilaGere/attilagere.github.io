@@ -30,4 +30,4 @@ roundtable discussion. Throughout the event, attendees will have the opportunity
 
 The official site of the event is available **[here](https://etk.szie.hu/esemeny/20180223/magyar-rovaripari-konferencia)**, 
 while it's Facebook page is available **[here](https://www.facebook.com/events/szent-istv%C3%A1n-egyetem-budai-campus/i-magyar-rovaripari-konferencia/159629201427022/)**, 
-the book of abstracts (Hungarian) is available **[here](https://drive.google.com/file/d/1M17zUPIibXW66xE2UKx7oGSd9XVIqFLl/view?usp=sharing)** érhető el. 
+the book of abstracts (Hungarian) is available **[here](https://drive.google.com/file/d/1M17zUPIibXW66xE2UKx7oGSd9XVIqFLl/view?usp=sharing)**. 
