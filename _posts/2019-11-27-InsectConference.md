@@ -9,21 +9,21 @@ sensory factors, consumer acceptance, marketing, and more. Besides organizationa
 talk about consumer acceptance of insects and insect-based food products.
 
 Official patrons:
-+Prof. Dr. Biacs Péter (SZIE-ÉTK)
-+Prof. Dr. Gyuricza Csaba (NAIK)
-+Prof. Dr. Palkovics László (vice-rector, SZIE Buda Campus)
-+Dr. Friedrich László (interim dean, SZIE-ÉTK)
++ Prof. Dr. Biacs Péter (SZIE-ÉTK)
++ Prof. Dr. Gyuricza Csaba (NAIK)
++ Prof. Dr. Palkovics László (vice-rector, SZIE Buda Campus)
++ Dr. Friedrich László (interim dean, SZIE-ÉTK)
 
 Plenary speakers:
-+Antonovits Bence (Little Food SCRL)
-+Dr. Bakonyi Tamás (ÁE)
-+Prof. Dr. Fehér István (SZIE-GTK)
-+Dr. Fail József (SZIE-KTK)
-+Dr. Gere Attila (SZIE-ÉTK)
-+Dr. Kasza Gyula (NÉBIH Presidential Commissioner)
-+Prof. Dr. Mézes Miklós (SZIE-MKK, MTA)
-+Pintér Richárd (SZIE-ÉTK)
-+Dr. Radványi Dalma (SZIE-ÉTK, NAIK)
++ Antonovits Bence (Little Food SCRL)
++ Dr. Bakonyi Tamás (ÁE)
++ Prof. Dr. Fehér István (SZIE-GTK)
++ Dr. Fail József (SZIE-KTK)
++ Dr. Gere Attila (SZIE-ÉTK)
++ Dr. Kasza Gyula (NÉBIH Presidential Commissioner)
++ Prof. Dr. Mézes Miklós (SZIE-MKK, MTA)
++ Pintér Richárd (SZIE-ÉTK)
++ Dr. Radványi Dalma (SZIE-ÉTK, NAIK)
 
 In addition, participants from the agricultural sector will discuss their perspectives on the topic during a 
 roundtable discussion. Throughout the event, attendees will have the opportunity to taste various insect-based products.
